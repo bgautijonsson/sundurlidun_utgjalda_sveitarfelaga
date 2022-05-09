@@ -1,0 +1,1 @@
+# sundurlidun_utgjalda_sveitarfelaga
